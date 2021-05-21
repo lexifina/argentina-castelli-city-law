@@ -1,0 +1,1 @@
+ARTÍCULO 324 bis. Por cada faena realizada en establecimientos frigoríficos y mataderos del Partido se abonará el equivalente en pesos hasta 1,5 kg de novillo vivo por animal faenado, tomando como base el precio promedio mensual del índice de Novillo Mercado de Liniers (INML) del mes anterior a la fecha de cada vencimiento que publique el mencionado mercado”.

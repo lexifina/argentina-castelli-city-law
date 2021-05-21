@@ -1,0 +1,1 @@
+ARTÍCULO 271 quater. Los establecimientos cárnicos señalados en el artículo 271 bis deberán actuar como agentes de percepción, en los plazos, modo y condiciones que establezca la Autoridad de Aplicación”.

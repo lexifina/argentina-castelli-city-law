@@ -1,0 +1,1 @@
+ARTÍCULO 271 ter. Son sujetos pasivos del tributo contemplado en el presente título, los productores, consignatarios, matarifes, abastecedores, consumidores y todos aquellos usuarios de faena que realicen o contraten dicho servicio en los establecimientos indicados en el artículo anterior.
