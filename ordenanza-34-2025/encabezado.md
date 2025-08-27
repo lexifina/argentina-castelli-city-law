@@ -1,0 +1,5 @@
+Ordenanza Nº34/2023
+Ordenanza Nº 34/2023
+Castelli, 21/12/2023
+CONVALIDA DECRETO N° 239/23.-
+ORDENANZA
