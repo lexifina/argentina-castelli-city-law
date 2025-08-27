@@ -1,0 +1,5 @@
+Ordenanza Nº31/2023
+Ordenanza Nº 31/2023
+Castelli, 29/11/2023
+CONVALIDA DECRETO N° 1068/23.-
+ORDENANZA
