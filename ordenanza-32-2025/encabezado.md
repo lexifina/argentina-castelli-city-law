@@ -1,0 +1,5 @@
+Ordenanza Nº32/2023
+Ordenanza Nº 32/2023
+Castelli, 29/11/2023
+CONVALIDA DECRETO N° 142/23.-
+ORDENANZA
