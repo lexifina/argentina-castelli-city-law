@@ -1,0 +1,1 @@
+ARTÍCULO 2° TER: Impóngase la denominación oficial “Marcelo Díaz, a la calle ubicada entre Sargento Cabral y Combate de San Lorenzo de la Localidad de Castelli e Impongase la denominación oficial "Leloir Luis Federico", a la calle ubicada entre Bogado y “Marcelo Díaz”.-

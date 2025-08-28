@@ -1,0 +1,1 @@
+ARTÍCULO 2° BIS: Impóngase la denominación oficial "Santa Rosa ", a la calle ubicada entre Bogado y Sargento Cabral, e impóngase la denominación oficial "Cristina Scrocca", a la calle ubicada entre Combate de San Lorenzo y Santa Rosa de la Localidad de Castelli.-
