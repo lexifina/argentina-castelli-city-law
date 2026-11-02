@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-castelli",
+  "code": "AR-B-CASTELLI",
+  "name": "Castelli",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-castelli-city-law",
+  "build": "built: municipal ordinances (189 ordinances, 189 versions) from https://sibom.slyt.gba.gob.ar/cities/24",
+  "language": "es",
+  "sources": 1
+}
